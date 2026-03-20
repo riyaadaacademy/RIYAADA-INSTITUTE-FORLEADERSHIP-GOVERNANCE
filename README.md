@@ -48,4 +48,6 @@ Clarification / additional details for RIYAADA (ROR request)
 	•	Year established: 2023
 WikiData: ‪Q138003758‬ 
 
+
+
 ‪ (‬RIYAADA Institute for Leadership & Governance )
